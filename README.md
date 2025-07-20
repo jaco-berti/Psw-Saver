@@ -1,1 +1,1 @@
-#### @ 2025 Jacopo Bertini - Psw Saver. All Rights Reserved.
+#### @ 2025 Psw Saver. All Rights Reserved.
