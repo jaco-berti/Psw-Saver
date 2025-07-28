@@ -1,1 +1,1 @@
-#### @ 2025 Psw Saver. All Rights Reserved.
+#### Copyright © 2025 Psw Saver. All Rights Reserved.
